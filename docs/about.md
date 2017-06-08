@@ -16,10 +16,6 @@ Amanda lives in Upper Michigan with her husband and kids.  She works at a small 
 
 * Bachelors of Science Accounting from Lake Superior State University 2004
 
-## Roles
-
-Founder, ABC Organisation
-
 ## Skills
 
 * Accounting
