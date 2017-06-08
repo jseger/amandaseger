@@ -10,6 +10,8 @@ She frequently presents topics and issues to boards and to her peers.  Her infor
 
 Amanda earned a Bachelor of Science, Accounting from Lake Superior State University and has recently attended several accounting workshops in Washington D.C. and Madison, WI.
 
+Amanda lives in Upper Michigan with her husband and kids.  She works at a small electrical cooperative as CFO where she is passionate about success.  When she is not working or planning a vacation, you can find her spending time in the garden.
+
 ## Education
 
 * Bachelors of Science Accounting from Lake Superior State University 2004
