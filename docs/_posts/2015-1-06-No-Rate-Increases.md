@@ -1,7 +1,7 @@
 ---
 layout: post
 title: No Rate Increases Planned
-author: Author Name
+author: Amanda Seger
 ---
 
 * [Article](http://www.countrylines.com/wp-content/uploads/2014/12/MECA-11454-January-Country-Lines-Alger_final_web.pdf)
